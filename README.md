@@ -22,4 +22,4 @@
 <br><br>
 <a href="https://tv.canlitv.mov/teve2-canli-hd" target="_blank">Teve2</a>
 <br><br>
-<a href="https://tv.canlitv.mov/tv85-canli" target="_blank">Tv8,5<
+<a href="https://tv.canlitv.mov/tv85-canli" target="_blank">Tv8,5</a>
